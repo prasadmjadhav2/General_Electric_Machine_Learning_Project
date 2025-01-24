@@ -140,7 +140,7 @@ Apply AI techniques to enhance operational efficiency, predict pricing, and impr
 
 ## Contact
 I’d love to connect and discuss these projects further! Feel free to reach out via:
-- **LinkedIn**: [Your LinkedIn Profile](https://linkedin.com/in/prasadmjadhav2)
+- **LinkedIn**: [LinkedIn](https://linkedin.comin/prasadmjadhav2)
 - **Email**: prasadmjadhav6161@gmail.com
 
 ---
